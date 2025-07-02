@@ -1,0 +1,1 @@
+zamr tesnet
